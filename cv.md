@@ -8,4 +8,4 @@
 - My education: I've passed 2 classes on javarush.
 - My languages: I've never passed any professional tests to check my real English level but I think my English B1-B2.
 
-P.S. For now it doesn't seem that I look like a good employee to hire but I'll try to change it.
+P.S. For now it doesn't seem that I look like a good employee to hire but I'll try to change it :)
