@@ -1,1 +1,1 @@
-https://vadzim1010.github.io/rsschool-cv/cv
+https://vadzim1010.github.io/rsschool-cv/c
